@@ -38,7 +38,7 @@
 
 #### Религии
 
-1. Стоицизм: [10 упражнений](https://newtonew.com/lifehack/stoicizm-10-prakticheskih-uprazheneniy)
+1. Стоицизм: [10 упражнений](https://newtonew.com/lifehack/stoicizm-10-prakticheskih-uprazheneniy), [на Википедии](https://ru.m.wikipedia.org/wiki/%D0%A1%D1%82%D0%BE%D0%B8%D1%86%D0%B8%D0%B7%D0%BC)
 
 #### Течения и общественные движения, культуры
 
