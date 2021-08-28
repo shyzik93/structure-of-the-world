@@ -38,6 +38,8 @@
 
 #### Религии
 
+1. Стоицизм: [10 упражнений](https://newtonew.com/lifehack/stoicizm-10-prakticheskih-uprazheneniy)
+
 #### Течения и общественные движения, культуры
 
 1. Трансгуманизм
